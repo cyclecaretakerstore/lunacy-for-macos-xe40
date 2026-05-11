@@ -1,4 +1,4 @@
-
+advanced Filter for Lunacy for macOS - real-time preview and custom brushes is the best Lunacy for macOS filter, featuring real-time preview and custom brushes. Safe, efficient,
 
 
 
